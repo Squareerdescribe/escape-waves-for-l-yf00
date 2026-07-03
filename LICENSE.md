@@ -1,4 +1,4 @@
-
+new Scripts for escape waves for lucky blocks is the best escape waves for lucky blocks Script, featuring aimbot and no cooldown. Safe and powerful
 
 
 
